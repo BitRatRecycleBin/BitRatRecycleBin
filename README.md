@@ -5,3 +5,8 @@ You could make more money with me truth!!Think about it!
 Anyway, tell your boss BitRat sucks bigtime and his source will be 
 released Rat/Crypter and anything his has on the market! very soon!
 You want war?you have it now!
+
+
+Unknown Crypter Links:
+http://kingmummylive.com/version.txt
+http://kingmummylive.com
