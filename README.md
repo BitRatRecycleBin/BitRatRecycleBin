@@ -1,4 +1,4 @@
-# BitRat Looser!
+# BitRatRecycleBin!
 Snyke can you see now who is the boss?
 Keep working and sucking BitRat author dick to get $$!!
 You could make more money with me truth!!Think about it!
