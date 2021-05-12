@@ -15,5 +15,5 @@ http://kingmummylive.com
 
 http://kingmummylive.com/server
 
-
+Wie will post soon more malware samples!!!
 Source posted by Li Yang!!
