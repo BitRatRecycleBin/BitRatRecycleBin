@@ -1,2 +1,0 @@
-# AluFunPark
-All Good Things
